@@ -17,3 +17,13 @@ samples, guidance on mobile development, and a full API reference.
 
 - How to use FlutLab? Please, view our https://flutlab.io/docs
 - Join the discussion and conversation on https://flutlab.io/residents
+Nombre dereck adrian sandoval a.21308051280412@cbtis128.edu.mx
+- 
+- Link de referencia https://youtu.be/hRqPk-pH6y0?si=aAHLMI9-vun005LX
+- 
+
+
+![image](https://github.com/Dereck1016/UIIAct6/assets/135450780/cbad4eec-3fc1-48e5-a6e9-d483d9b4b9ad)
+![image](https://github.com/Dereck1016/UIIAct6/assets/135450780/d436bb79-5925-4a02-b339-d4fa51c518ee)
+![image](https://github.com/Dereck1016/UIIAct6/assets/135450780/b64d3963-f044-489b-be0d-1c68962efd38)
+
